@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning a mexer na computação
 - 💞️ I’m looking to collaborate on tudo oque for de meu alcance e me esforçar ao meu máximo
 - 📫 How to reach me ...
-- 😄 Pronouns: he/his
+- 😄 Pronouns: he/dele
 - ⚡ Fun fact: Sou inteligente, muito dedicado, oque não sei estou sempre a procura a melhorar o que um dia foi uma falha minha
 
 <!---
